@@ -1,6 +1,9 @@
 # fastfollow
 Increase instagram followers free
 
+# instagram account
+* 👉[![YouTube](https://img.shields.io/badge/FOLLOW-ME-red?style=for-the-badge&logo=instagram) ](https://youtube.com/channel/UCB412-l6L5DsfEywMFFkBvw)
+
 # note
 Used fake account for login
 Don't used real account
@@ -15,10 +18,7 @@ Don't used real account
 3. How to order for followers
 * 👉[![YouTube](https://img.shields.io/badge/YOUTUBE-CHANNEL-red?style=for-the-badge&logo=instagram) ](https://youtube.com/shorts/UtayQCtRGr4?feature=share)
 
-4. How to order for likes
-* 👉[![YouTube](https://img.shields.io/badge/YOUTUBE-CHANNEL-red?style=for-the-badge&logo=instagram) ](https://youtube.com/channel/UCB412-l6L5DsfEywMFFkBvw)
-
-5. How to check daily free coins
+4. How to check daily free coins
 * 👉[![YouTube](https://img.shields.io/badge/YOUTUBE-CHANNEL-red?style=for-the-badge&logo=instagram) ](https://youtube.com/shorts/FGnLvWtpBiI?feature=share)
 
 # download apk file
