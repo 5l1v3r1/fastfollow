@@ -7,7 +7,7 @@ Don't used real account
 # Video
 1. How to earn coins
 2. How to used promotion code you can used promotion code when you have at least 200 coin(promotion code give you 200 to 500 coin free) 
-Promotion code( 7F08281A )
+* Promotion code( 7F08281A )
 3. How to order for followers
 4. How to order for likes
 # download apk file
