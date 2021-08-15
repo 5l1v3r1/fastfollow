@@ -1,8 +1,8 @@
 # fastfollow
 Increase instagram followers free
 
-# instagram account
-* 👉[![YouTube](https://img.shields.io/badge/FOLLOW-ME-red?style=for-the-badge&logo=instagram) ](https://youtube.com/channel/UCB412-l6L5DsfEywMFFkBvw)
+Instagram account
+👉[![Instagram  ](https://img.shields.io/badge/INSTAGRAM-FOLLOW-red?style=for-the-badge&logo=instagram)](https://www.instagram.com/shubhamg0sain)👈
 
 # note
 Used fake account for login
