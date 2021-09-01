@@ -14,6 +14,7 @@ Don't used real account
 
 2. How to used promotion code you can used promotion code when you have at least 200 coin(promotion code give you 200 to 500 coin free) 
 * Promotion code( 3A4D5E0E )
+* Promotion code( 80E7385F )
 * 👉[![YouTube](https://img.shields.io/badge/YOUTUBE-CHANNEL-red?style=for-the-badge&logo=instagram) ](https://youtube.com/shorts/Re-xBzTk4Yk?feature=share)
 
 3. How to order for followers
